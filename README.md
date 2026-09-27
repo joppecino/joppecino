@@ -1,1 +1,1 @@
-![meow](https://github.com/joppecino/joppecino/blob/main/inspection.gif)
+![meow](https://github.com/joppecino/joppecino/blob/main/ohaiyo.gif)
